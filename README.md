@@ -11,4 +11,4 @@ done, but also as a way to write about what I'm working on each week and
 to keep me on track.
 
 If anything you find here sparks your interest and you'd like to chat,
-you can reach me at obg@dal.ca
+you can reach me at obgibbs@gmail.com.
